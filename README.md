@@ -226,4 +226,4 @@ HP Photosmart Essential is provided as a full free version with all features and
 Start managing and editing your photos today with the powerful HP Photosmart Essential. Download now and unlock the full potential of your photography!
 
 ---
-**Last updated:** 2026-10-27 13:47:19 UTC
+**Last updated:** 2026-10-27 19:06:24 UTC
